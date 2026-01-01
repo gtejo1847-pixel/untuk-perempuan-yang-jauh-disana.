@@ -83,10 +83,12 @@ Aku pernah patah,
 bukan karena cinta itu salah,
 tapi karena aku terlalu percaya
 pada hal yang belum tentu tinggal.
+      
 Sejak itu aku belajar menahan,
 bukan menutup.
 Belajar menjaga hati,
 bukan memenjarakannya.
+
 Jika suatu hari
 kamu datang tanpa memaksa,
 hadir tanpa janji berlebihan,
